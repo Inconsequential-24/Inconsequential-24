@@ -30,7 +30,7 @@ Here are some ideas to get you started:
 
 - 😄 Pronouns: She/Her
 
-- ⚡ Fun fact **I love to read! If you have book recommendations or want some recommendations, please feel free to reach out!**
+- ⚡ Fun fact **I love to read! I am a Potterhead, Always!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
